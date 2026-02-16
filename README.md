@@ -1,1 +1,1 @@
-# ads-check
+google.com, pub-7880867934531229, DIRECT, f08c47fec0942fa0
